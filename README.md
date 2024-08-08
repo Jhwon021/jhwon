@@ -12,4 +12,5 @@ jhwon021@gmail.com
 
 @jhwon021
 
-![descrição do GIF](link GIF do Tenor)
+![descrição do GIF](![image](https://github.com/user-attachments/assets/19f7c0c9-ab96-4c81-8aaf-313eee4380bb)
+
